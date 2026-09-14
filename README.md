@@ -1,6 +1,6 @@
 ## Hey! I'm Jimmy!
 If I don't do anything for a while, I'm probably not in my 2-month coding phase.\
-Pronouns: He/Him\
+Pronouns: He/Him (probably)\
 How to reach me: You can't
 
 <!--
