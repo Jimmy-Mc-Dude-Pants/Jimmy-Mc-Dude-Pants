@@ -1,4 +1,4 @@
-## Hey! I'm Jimmy!
+## Hey! I'm Natly!!
 If I don't do anything for a while, I'm probably not in my 2-month coding phase.\
 Pronouns: She/Her\
 How to reach me: You can't
